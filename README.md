@@ -15,7 +15,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
-HORAR
+HORARIO
+
 \begin{table}[]
 \begin{tabular}{lllll}
  &  &  &  &  \\
