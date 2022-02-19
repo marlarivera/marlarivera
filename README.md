@@ -1,5 +1,17 @@
 ![](https://p81.cooltext.com/Rendered/Cool%20Text%20-%20Marla%20Rivera%20404719734676559.png)
 
+Mi nombre completo es Marla Janeth Rivera Jimenez, tengo 16 años actualmente, y mis cosas favoritas son: 
+
+La musica, mi cantante favorita es Melanie Martinez:
+
+![image](https://user-images.githubusercontent.com/99762703/154790885-79a53b5c-5f8e-4115-92b6-14e1aa58cb83.png)
+
+Me gustan mucho los animales, tengo dos perritos uno se llama deku y  otra princess:
+
+![image](https://user-images.githubusercontent.com/99762703/154791086-89fb5f7c-863e-43c3-bf28-87e9e4b61d18.png)
+
+Actualmente estudio en la Preparatoria Federal Lazaro Cardenas en 4to semestre, aqui te dejo mi horario para cualquier duda:
+
 HORARIO
 |     HORA    |          LUNES         |               MARTES              |        MIERCOLES       |                JUEVES               |              VIERNES              |
 |:-----------:|:----------------------:|:---------------------------------:|:----------------------:|:-----------------------------------:|:---------------------------------:|
